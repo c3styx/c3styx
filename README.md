@@ -6,7 +6,7 @@ _**Birthday**_: May 18th (21)
 ### Games I frequently play: 
   DBD, HSR, Genshin, Overwatch, Roblox, Warframe, Minecraft, and Fortnite
 
-I do play on MacOs and PS4 so I am **VERY** limited but I am down to play whenever and whatever
+I do play on MacOs and PS4 so I am **VERY** limited. I am down to play whenever and whatever 🗣️
 
 ## People that mean a lot to me:
   My Boyfriend, Dante, Cat, Roman, Kovilina, and Camicus
