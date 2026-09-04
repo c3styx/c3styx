@@ -10,6 +10,6 @@ _**Birthday**_: May 18th (21) ♉︎
 I do play on MacOs and PS4 so I am **VERY** limited. I am down to play whenever and whatever 🗣️
 
 ### 🤎 People that mean a lot to me 🤎:
-  Dante, Cat, Roman, Kovilina, and Camicus
+  Dario, Dante, Cat, Roman, Kovilina, and Camicus
 
 *(I know this is a shit about me shhhhhhh)*
